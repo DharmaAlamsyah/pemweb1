@@ -1,0 +1,1 @@
+Apakah Gabut itu Penting??!!!!
